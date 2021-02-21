@@ -1,0 +1,1 @@
+# Equal_Weight_S-and-P-500
